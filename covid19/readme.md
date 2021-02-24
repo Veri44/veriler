@@ -1,1 +1,1 @@
-Coronavirüs İstatistikleri
+Malatya Coronavirüs İstatistikleri
